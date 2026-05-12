@@ -1,4 +1,4 @@
-# 
+# Enhance your trading with ultimate new token sniper bot | MEV-detection + arbitrage-opportunities, the #1 new token sniper bot. Includes MEV-detection and arbitrage-opportunities
 
 
 
